@@ -1,0 +1,4 @@
+- 👋 Wsh, c´est moi @NabilLUA
+- 👀 Je suis dev en LUA
+- 🌱 Je poste régulieremnt des créations et des leaks inédits
+- 💞️ Je suis Fondateur de DreamLife RP
